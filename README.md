@@ -1,0 +1,1 @@
+# noore-vizhe-qr-mobile
